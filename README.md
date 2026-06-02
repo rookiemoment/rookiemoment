@@ -31,4 +31,4 @@
 - coronation day peach ['the]
 -----
 
-![gifalt](https://files.catbox.moe/lwpehv.gif)
+<img width="246" height="240" alt="Image" src="https://github.com/user-attachments/assets/dfb6e55c-5881-42a9-b09f-021deaa41b7c" />
