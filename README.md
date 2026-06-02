@@ -23,7 +23,7 @@
 
 - nashatra [frozen soul]
 - ivan [bad things]
-- avery (awtde)
+- avery [awtde]
 - red [pokemon]
 - collinlock16 
 - ze [AReGect]
@@ -31,4 +31,4 @@
 - coronation day peach ['the]
 -----
 
-![imagealt](https://files.catbox.moe/lwpehv.gif)
+![gifalt](https://files.catbox.moe/lwpehv.gif)
