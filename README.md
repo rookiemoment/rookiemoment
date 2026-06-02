@@ -1,5 +1,5 @@
 ## hi hello!
-##### basic PT stuff !
+##### basic PT stuff ! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/deb48a68-f3c0-42bd-8d8f-e33e8bef91b9" />
 -----
 ✮⋆˙ hello hello im rookie or rook or whatever pony im usin idm.
 
