@@ -18,7 +18,7 @@
 > overall be nice and treat me and my friendz with respect.
 -----
 
-### the characters listed below are my **kins**! like heavy heavy kins
+### ❄︎ the characters listed below are my **kins**! like heavy heavy kins
 #### idc if doubles interact just dont be weird.
 
 - nashatra [frozen soul]
