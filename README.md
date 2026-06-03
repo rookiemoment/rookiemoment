@@ -10,7 +10,7 @@
 > [!CAUTION]
 > im very quick to block and expect it to be perm
 > 
-> 
+> BIG DNI TO ROBLOX MYTH FANS NO EXPECTIONS 
 > respect my boundries:
 > 
 > do not kiss or cuddle. do not push any ships onto me. idc if u think its funny its gross
