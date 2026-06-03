@@ -32,4 +32,4 @@
 -----
 image changes based on who im heavily kinning rn
 
-<img width="246" height="240" alt="Image" src="https://files.catbox.moe/nr33cb.png" />  < me rn 
+<img width="246" height="240" alt="Image" src="https://files.catbox.moe/d6k1ye.png" />  < wow me 
