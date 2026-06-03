@@ -13,7 +13,7 @@
 > 
 > respect my boundries:
 > 
-> do not kiss or cuddle. do not push any ships onto me. idc if u think its funny is gross
+> do not kiss or cuddle. do not push any ships onto me. idc if u think its funny its gross
 >
 > overall be nice and treat me and my friendz with respect.
 -----
@@ -30,5 +30,5 @@
 - gardevoir [pokemon]
 - coronation day peach ['the]
 -----
-
+image changes based on who im heavily kinning rn
 <img width="246" height="240" alt="Image" src="https://files.catbox.moe/nr33cb.png" />  < me rn 
