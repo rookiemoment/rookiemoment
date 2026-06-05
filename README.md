@@ -10,7 +10,7 @@
 > [!CAUTION]
 > im very quick to block and expect it to be perm
 > 
-> BIG DNI TO ROBLOX MYTH FANS NO EXPECTIONS
+> BIG DNI TO ROBLOX MYTH FANS NO EXPECTIONS and ivandrew shippers 
 > 
 > respect my boundries:
 > 
