@@ -9,16 +9,18 @@
 
 - W2I higher the chances ill answer u since i can be off tab at timez
 
+- dont expect to be friends but i will treat u with respect
+
 > [!CAUTION]
 > im very quick to block and expect it to be perm
 > 
-> BIG DNI TO ROBLOX MYTH FANS NO EXPECTIONS and ivandrew shippers 
+> BIG DNI TO ROBLOX MYTH FANS NO EXPECTIONS, proshippers, and ivandrew shippers 
 > 
 > respect my boundries:
 > 
 > do not kiss or cuddle. do not push any ships onto me. idc if u think its funny its gross
 >
-> overall be nice and treat me and my friendz with respect.
+> overall be nice and treat me and my friendz with respect and dont be pushy
 -----
 
 ### ❄︎ the characters listed below are my **kins**! like heavy heavy kins
