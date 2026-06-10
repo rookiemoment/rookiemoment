@@ -7,6 +7,8 @@
 
 - im very very quiet and dont like long convos so dont expect much other then a hi and a compliment <:P
 
+- W2I higher the chances ill answer u since i can be off tab at timez
+
 > [!CAUTION]
 > im very quick to block and expect it to be perm
 > 
