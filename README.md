@@ -25,6 +25,8 @@
 #### idc if doubles interact just dont be weird.
 
 - nashatra [frozen soul]
+- skateboard [phighting]
+- 
 - ivan [bad things]
 - avery [awtde]
 - red [pokemon]
