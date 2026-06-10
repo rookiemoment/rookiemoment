@@ -23,8 +23,8 @@
 > overall be nice and treat me and my friendz with respect and dont be pushy
 -----
 
-### ❄︎ the characters listed below are my **kins**! like heavy heavy kins
-#### idc if doubles interact just dont be weird.
+### ❄︎ the characters listed below are my **kins**! like i see myself as them irl kins
+#### idc if doubles interact just dont be weird. or push ur hcs onto me
 
 - nashatra [frozen soul]
 - skateboard [phighting]
