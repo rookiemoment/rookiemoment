@@ -26,7 +26,6 @@
 
 - nashatra [frozen soul]
 - skateboard [phighting]
-- 
 - ivan [bad things]
 - avery [awtde]
 - red [pokemon]
@@ -37,4 +36,4 @@
 -----
 image changes based on who im heavily kinning rn
 
-<img width="246" height="240" alt="Image" src="https://files.catbox.moe/d6k1ye.png" />  < wow me 
+<img width="246" height="240" alt="Image" src="https://files.catbox.moe/78a72s.png" />  < wow me 
