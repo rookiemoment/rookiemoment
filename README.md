@@ -36,4 +36,4 @@
 -----
 image changes based on who im heavily kinning rn
 
-<img width="246" height="240" alt="Image" src="https://files.catbox.moe/78a72s.png" />  < wow me 
+<img width="511" height="599" alt="Image" src="https://github.com/user-attachments/assets/7d2207fe-5622-4be0-a37d-c732b1f21c49" />  < wow me 
