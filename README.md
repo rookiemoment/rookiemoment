@@ -1,5 +1,5 @@
 ## hi hello!
-##### basic PT stuff ! °‧ 𓆝 𓆟 𓆞 ·｡
+##### basic PT stuff ! °‧ 𓆝 𓆟 𓆞 ·｡ check out my straw for fun stuff!
 -----
 ✮⋆˙ hello hello im rookie or rook or whatever pony im usin idm.
 
