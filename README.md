@@ -35,6 +35,7 @@
 - ze [AReGect]
 - gardevoir [pokemon]
 - coronation day peach ['the]
+- pink [deltarune]
 -----
 image changes based on who im heavily kinning rn
 
