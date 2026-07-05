@@ -36,6 +36,7 @@
 - gardevoir [pokemon]
 - coronation day peach ['the]
 - pink [deltarune]
+- john pilgrammed [pilgrammed]
 -----
 image changes based on who im heavily kinning rn
 
