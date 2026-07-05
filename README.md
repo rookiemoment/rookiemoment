@@ -39,4 +39,4 @@
 -----
 image changes based on who im heavily kinning rn
 
-<img width="200" height="250" alt="Image" src="https://github.com/user-attachments/assets/7d2207fe-5622-4be0-a37d-c732b1f21c49" />  < wow me 
+<img width="62" height="86" alt="Image" src="https://github.com/user-attachments/assets/68dc4f28-0325-4ba2-9360-3406473934c2" /> < wow me 
